@@ -4,3 +4,9 @@
 #### 0424044 朱偉正
 ##### 0424044 朱偉正
 ###### 0424044 朱偉正
+
+:smile:
+
+![](Chrysanthemum.jpg "挖哩")
+
+![中美最強街球手對決! 趙強1v1晃過籃球教授](https://www.youtube.com/watch?v=I1VfPC3nM98)
